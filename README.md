@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PulkitAashiya
-- 👀 I’m interested in Learning, Ainme, Fighting, Travelling, Dreaming and Following them and i just love myself dude, so if you love me love me or your loss.
+- 👀 I’m interested in Learning, Anime, Fighting, Travelling, Dreaming and Following them and i just love myself dude, so if you love me love me or your loss.
 - 🌱 I’m currently learning Many things like Cybersec, AI, Programming, and many things.
 - 💞️ I’m looking to find some good friends and actually grow in life while also pursuing my dreams
 - 📫 How to reach me ...
